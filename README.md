@@ -49,7 +49,7 @@ QA Engineering Bootcamp (2025–2026)
 
 **Licenciatura en Música**
 
-Especialidad en Percusión
+Especialidad en Percusión.
 
 ---
 #  Actualmente aprendiendo
